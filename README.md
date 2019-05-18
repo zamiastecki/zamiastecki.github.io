@@ -1,0 +1,1 @@
+# zamiastecki.github.io
